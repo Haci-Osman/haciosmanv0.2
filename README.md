@@ -1,1 +1,1 @@
-# haciosmanv0.2
+discord.gg/haciosman t.me/haciosman instagram.com/haciosmandc tiktok.com/@haciosmandc
